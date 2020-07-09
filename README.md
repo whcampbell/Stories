@@ -29,4 +29,4 @@ Chadman looked back at Lysander, then down again to the young one swaddled in hi
 the child. As he was putting it down, he said, "I'll never forget you. Stay safe out there Brad." The owl-bear took a few steps, looked back once
 again, and then dashed deep into the woods. 
 
-<img src="./Chadman_and_Brad"/>
+<img src="./Chadman_and_Brad.png"/>
