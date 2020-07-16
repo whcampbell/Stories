@@ -30,3 +30,13 @@ the child. As he was putting it down, he said, "I'll never forget you. Stay safe
 again, and then dashed deep into the woods. 
 
 <img src="./Chadman_and_Brad.png"/>
+
+So the adventurers continued their quest to the Mad Mage.
+
+...
+
+The adventurers began to hear thunderous noises as the trees around them began to thin. Suddenly they came upon a large clearing in which an old,
+naked man was prancing about. Lysander pegged him immediately as the man that Bluto had mentioned. The noises still confused them, until at once
+the old man made a powerful gesture to the sky and summoned great columns of fire from the earth. 
+
+<img src="./Mad_Mage.png"/>
