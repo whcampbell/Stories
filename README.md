@@ -12,6 +12,33 @@ _Slim Darkness_ is the type of man to steal the pennies off your eyes. He's not 
 walking with for that moment. He wakes up in the forest to the sight of a strange old man. _Sir Lysander Stanley Conrad_, a big-game hunter
 who found himself in Barovia long ago, was happy to greet a new arrival. 
 
+"Nice to meet you good sir!" Lysander had barely pulled Slim to the ground before beginning to vehemently shake his hand. "My name is Sir
+Lysander Stanley Conrad!" Slim, somewhat confused at the situation in which he found himself, replied "I'm Slim, Slim Darkness. Do you mind
+telling me where I am?" Lysander was still shaking Slim's hand vigorously when he answered "You're in Barovia good sir, a foggy
+land of mystery and evil."
+
+"Excellent." Slim was not a believer in evil and didn't buy into mystery, but he paused for a moment to reckon uopn his next move. He then 
+realized that Lysander was still shaking his hand fervently and extracted it from his grasp. "Is there any way back to the mainland?" Slim asked. 
+
+"Well, that's somewhat complicated. Walk with me back to my home and I'll fill you in on some of the details." Slim nodded, and they moved along.
+After striding through the damp pine forest for a few silent moments, Slim glimpsed an odd sight through the trees. There, in a clear circle about 
+twenty feet across, lay a large boulder, and sticking out from it was a gleaming sword. Lysander was somewhat taken aback, because in his many 
+forays into these woods he had never seen this sword and stone. Slim looked to Lysander for information, but upon seeing that he was just as
+confused, he walked forth and climbed onto the stone. Slim was armed well enough, but he was always open to collect goods for trade. There was also
+a strange feeling he had, as if the sword had called to him. 
+
+Lysander watched as Slim placed his feet firmly under him and focused his energy. Slim rubbed his hands together and slowly laid them upon the 
+leather-bound hilt of the sword. Lysander saw his muscles beginning to tense, saw the sword begin to give. All at once, with a great effort, Slim 
+snapped the hilt right off.
+
+"Damn!" Slim exclaimed. 
+"That was rather anticlimactic my boy. May we go on? My game is starting to smell," Lysander urged. Slim looked down at the sword, knowing that 
+there was no way to get it out. Not that it was worth anything in two pieces anyways. He could not shake that strange feeling, though, so he placed
+the hilt into his bag before dismounting the rock and walking along with Lysander. 
+
+An intereting sight awaited them when they reached Lysander's town. They had just gotten past the outlying cottages when they saw a half-naked man
+locked in the town stockades. 
+
 ...
 
 Chadman looked deep into its eyes as the creature took its last breaths. There was a moment of silence as a breeze fluttered through the leaves 
