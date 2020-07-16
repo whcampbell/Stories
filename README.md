@@ -27,6 +27,8 @@ forays into these woods he had never seen this sword and stone. Slim looked to L
 confused, he walked forth and climbed onto the stone. Slim was armed well enough, but he was always open to collect goods for trade. There was also
 a strange feeling he had, as if the sword had called to him. 
 
+<img src="./Slims_Sword.png"/>
+
 Lysander watched as Slim placed his feet firmly under him and focused his energy. Slim rubbed his hands together and slowly laid them upon the 
 leather-bound hilt of the sword. Lysander saw his muscles beginning to tense, saw the sword begin to give. All at once, with a great effort, Slim 
 snapped the hilt right off.
