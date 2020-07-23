@@ -74,7 +74,7 @@ the old man made a powerful gesture to the sky and summoned great columns of fir
 
 After being restrained, Magenkarp...
 
-<img src="./Magikarp_Restrained.png"/>
+<img src="./Magikarp_Restrained_1.png"/>
 
 The first watches of the night went without interruption. Mar passed the fire to Lysander, and from him to Thea. As the loneliest hours of the night
 went on, however, Thea watched as the old man Magikarp began to twist and tremble in his dreams. 
