@@ -58,6 +58,30 @@ from these stocks?" Lysander barraged. <br/>
 "Yeah, he can go." The guard rested his spear against Chad's head as he filed through his keys, eventually finding the correct one and undoing the
 bolts. 
 
+"Well, I'd consider that it's about time for us to become formally introduced! My name is Sir Lysander Stanley Conrad. Wonderful to meet you 
+good sir!" Lysander pounced upon Chad's hand as soon as it was free from the stockade and began to shake it thunderously. <br/>
+"It's rad to meet you as well, mister Lysander. My name is Chadman JaBogus, but you can call me Chad." <br/>
+"And I'm Slim," Slim added from the sidelines. Lysander, still throwing Chad's hand about, plowed on. <br/>
+"Why is it, though, that we find you with no garments upon your upper body, especially in a foggy and cold land such as this?" He inquired. <br/>
+"Well," Chad began, "An excess of clothing is exactly the type of material wealth that I try to shy away from. Sure, a bro may need to borrow
+some rag if he needs to grab some food from the nearby s'leven, but on the sunny beaches of Santa Monica, a shirt would only stand in the way 
+of my beautifully muscular torso in its desire to soak in the rays of the golden sun. I believe that by casting off all material distractions, one can
+truly glimpse the power and beauty of nature and humanity." 
+
+At this point, Lysander had stopped shaking Chad's hand, mostly out of confusion over what a "bro" or a "s'leven" may be, but also because of this
+shocking introduction to zen buddhism. 
+
+"Now, I think I must find my way back home to my board and those golden rays," Chad said, and he began to walk off into the fog. 
+
+"By George, I'm not sure what he was saying for most of that, but he seemed to be very wise," Lysander said to Slim, watching the fog slowly wisp
+and curl around the retreating Chad. Suddenly, the figure immediately jolted to a stop, as Chad had walked directly into the city wall. <br/>
+"But he ain't too smart," Slim added. 
+
+Lysander and Slim walked over to Chad, now staring confused at the wall that had loomed so quickly. <br/>
+"Son, I'm afraid that returning to your home will not be so easy as a short walk," Lysander told him. <br/>
+"Then how do I get back?" Chad wondered aloud. <br/>
+"Come with me to my home and I'll tell you how the chips lie," Lysander proposed. With a quick nod, the men turned and continued to Lysander's home. 
+
 ...
 
 Chadman looked deep into its eyes as the creature took its last breaths. There was a moment of silence as a breeze fluttered through the leaves 
