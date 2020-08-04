@@ -38,8 +38,25 @@ snapped the hilt right off.
 there was no way to get it out. Not that it was worth anything in two pieces anyways. He could not shake that strange feeling, though, so he placed
 the hilt into his bag before dismounting the rock and walking along with Lysander. 
 
-An intereting sight awaited them when they reached Lysander's town. They had just gotten past the outlying cottages when they saw a half-naked man
-locked in the town stockades. 
+An intereting sight awaited them when they reached Lysander's town. They had just gotten through the city's gates when they saw a half-naked man
+locked in the town stockades. Struck by curiosity, they decided to talk to him.
+
+"My boy, what got into you that made you remove your clothing and do something worthy of imprisonment?" Lysander asked him. 
+
+"Well, I actually woke to the sight of armed men, and I was in these totally not-cool restraints before I knew it." The man was clad in black
+swimming trunks with heavily bronzed skin and electric yellow hair. This was _Chadman JaBogus_, zen master of surfboarding, and his monastery 
+was the beaches of Santa Monica.
+
+"You woke up, possibly without knowing how you got here?" Lysander continued, coming to realize what had happened. "Why, that is indeed correct
+my man. How did you know?" Chad replied. "It's a rather common occurrence in these parts, mind you." Lysander answered, and followed up with "I 
+do believe I can reason with the guards, as it seems there is no reason to arrest you any further. Dear sir!" He cried to the guard that was 
+posted a couple of feet away. 
+
+"Now, sir, you can rest assured that under my close supervision, this man will cause no nonsense or brouhaha in this fine town. Could he be released
+from these stocks?" Lysander barraged. <br/>
+"Let me think," the guard said, who also happened to be the head of local militia and had all authority over criminal justice and imprisonment. <br/>
+"Yeah, he can go." The guard rested his spear against Chad's head as he filed through his keys, eventually finding the correct one and undoing the
+bolts. 
 
 ...
 
